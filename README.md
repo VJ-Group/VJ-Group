@@ -1,0 +1,3 @@
+- 👋 VJ Group is a IT Consulting Company founded in 2022 It provides IT Services for large and medium businesses.
+-  Over 6 month its being on IT arena of Georgia, 
+- it has implemented plenty off successful IT infrastructure and equipment projects in almost all enterprises in Georgia.
